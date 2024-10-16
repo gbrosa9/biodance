@@ -1,6 +1,6 @@
 # Biodança para promover a Saúde na Terceira Idade
 
-Clique [aqui](https://github.com/gbrosa9/test/blob/main/BIODANC%CC%A7A%20-%20GRUPO%202%20(ATUALIZADOO!!!)%20(1).pdf) para acessar o projeto.
+Clique [AQUI](https://github.com/gbrosa9/test/blob/main/BIODANC%CC%A7A%20-%20GRUPO%202%20(ATUALIZADOO!!!)%20(1).pdf) para acessar o projeto.
 
 
 🧑🏻 Alexandre Tan Huang
